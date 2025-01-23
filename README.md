@@ -18,6 +18,9 @@ Asegúrate de aumentar la resolución a **1080p** para disfrutar de la mejor cal
 3. ▶️ [**Ver Demostración del Funcionamiento**](https://youtu.be/FAcT3N4oUaM?si=q43kh3plClFY5A4p)  
    🎯 *Mira cómo funciona en acción y sus increíbles ventajas.*  
 
+4. ▶️ [**Próxima actualización**]()  
+   🎯 *No puedes perderte las futuras actulizaciones. *  
+
 ---
 
 ## 📚 **Documentación Detallada**  
