@@ -15,10 +15,12 @@ Asegúrate de aumentar la resolución a **1080p** para disfrutar de la mejor cal
 2. ▶️ [**Ver Guía de Instalación**](https://youtu.be/836E_KaoVbo?si=MXXEKeGmdkE11mjp)  
    🛠️ *Aprende cómo instalar y configurar la herramienta paso a paso.*  
 
-3. ▶️ [**Ver Demostración del Funcionamiento**](https://youtu.be/FAcT3N4oUaM?si=q43kh3plClFY5A4p)  
+3. ▶️ [**Ver Demostración del Funcionamiento**](https://https://youtu.be/ADudU-SgjRA?si=bV6CywBcUx1i-HcYyoutu.be/FAcT3N4oUaM?si=q43kh3plClFY5A4p)  
    🎯 *Mira cómo funciona en acción y sus increíbles ventajas.*  
 
 4. ▶️ [**Próxima actualización 1**](https://youtu.be/YsC-8VIgHvM?si=0Rz9iircYMFK0vHd)  
+
+5. ▶️ [**Próxima actualización 2**](https://youtu.be/ADudU-SgjRA?si=bV6CywBcUx1i-HcY)
    🎯 *No puedes perderte las futuras actulizaciones. *  
 
 ---
